@@ -1,1 +1,0 @@
-# Gurukulam-Trust
